@@ -13,3 +13,8 @@ um den bösen und kriminellen Menschen in der Stadt das Handwerk zu legen. Es da
 * Lesley-Ann Brandt / Maazikeen
 * D. B. Woodside / Amenadiel
 * Kevin Alejandro / Dan
+
+
+As Lucifer said:
+
+> Lutsch meinen Jaggon!
