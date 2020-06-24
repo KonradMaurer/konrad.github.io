@@ -18,3 +18,5 @@ um den bösen und kriminellen Menschen in der Stadt das Handwerk zu legen. Es da
 As Lucifer said:
 
 > Lutsch meinen Jaggon!
+
+<img src="http://de.web.img3.acsta.net/r_640_360/newsv7/20/06/22/13/29/4768837.jpg"/> 
